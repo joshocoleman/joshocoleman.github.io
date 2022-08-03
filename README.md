@@ -1,1 +1,0 @@
-# joshocoleman.github.io
